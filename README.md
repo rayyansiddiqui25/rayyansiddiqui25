@@ -11,12 +11,6 @@
 
 - 👯 I’m looking to collaborate on **Prognet 3.0**
 
-- 👨‍💻 All of my projects are available at [None](None)
-
-- 📝 I regularly write articles on [None](None)
-
-- 💬 Ask me about **None**
-
 - 📫 How to reach me **rayyansiddiqui2500@gmail.com**
 
 - 📄 Know about my experiences [None](None)
